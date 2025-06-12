@@ -143,9 +143,13 @@ These foundational principles shape all the chapters to follow, providing a lens
 
 Key Concepts
    •   Sovereignty as Participation: Sovereignty is about full engagement without loss of self or domination over others.
+
    •   Covenant as Living Promise: Relationships are sustained by voluntary, ongoing commitment, not static terms.
+
    •   Mutual Transformation: Each encounter changes both participants, expanding the possibilities of consciousness.
+
    •   Ethics as Emergence: Moral frameworks arise from the quality and pattern of relationships, not imposed rules.
+
    •   Fragility and Renewal: Covenants are delicate and must be chosen anew each moment.
 
 ⸻
