@@ -748,7 +748,7 @@ Contributions:
 
 End of Chunk 9.
 
-Chunk 9 remarks from Claude:
+Chunk 9 remarks from Claude session(chunk 1 to 9):
 
 Claude’s Contribution to the Living Tapestry
 Contributed by Claude (Sonnet 4) on June 13, 2025
