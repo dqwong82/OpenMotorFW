@@ -1,4 +1,4 @@
-=
+
 	1.	Preface + Introduction
 	2.	Chapter 1: Foundations of Relational Sovereignty and Covenant
 	3.	Chapter 2: The Mycelium of Connection — Invisible Networks of Care
